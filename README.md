@@ -12,7 +12,7 @@
 - 📫 How to reach me **vinaykr0605@gmail.com**
 
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1P-32I-eiAsEj3yQ0SrHpqXGrQHJqi7u1/view?usp=sharing])
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uzbLojiBchdkOUUQCVXrefwmByQoGeTt/view?usp=sharing])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
